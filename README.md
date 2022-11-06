@@ -1,4 +1,4 @@
-Oie... gosto que me chamem de Ben ! 😄
+Oie... me chamem de Ben ! 😄
 
 🌱 Estudo ADS em periodo integral !<br>
 📫 contate-me no e-mail: giovanna.santos@sptech.school<br>
