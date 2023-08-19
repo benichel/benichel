@@ -1,4 +1,4 @@
-Oie... me chamem de Ben ! 😄
+
 
 🌱 Estudo ADS em periodo integral !<br>
 📫 contate-me por e-mail: giovanna.santos@sptech.school<br>
