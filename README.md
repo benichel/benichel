@@ -1,7 +1,7 @@
 
 
-🌱 Estudo ADS em periodo integral !<br>
-📫 contate-me por e-mail: giovanna.santos@sptech.school<br>
+🌱 Estudo ADS !<br>
+📫 contate-me pelo e-mail: giovanna.santos@sptech.school<br>
 
 <div> 
    <a href="https://picasion.com/"><img src="https://i.picasion.com/pic92/b723c2d9d8f030175fba925ee4838ef6.gif" width="125" height="125" border="0" alt="" /></a><br /><a href=""></a>
